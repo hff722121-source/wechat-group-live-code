@@ -1,1 +1,0 @@
-![Uploading group-qr.jpg…]()
